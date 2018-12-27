@@ -40,7 +40,8 @@
 
 사진 : 추후에올림
 
-취미 : 먹스타그램 ![먹스타](https://static.thenounproject.com/png/2035698-42.png)
+취미 : 먹스타그램 ![먹스타](https://static.thenounproject.com/png/2035698-42.png)  
+
 연말 계획: 귤까먹으면서 연기대상 수상자 내기하기
 
 12월 31일에 하고싶은것 : 내년에 아홉수를 맞이하는 남자친구 놀리기  
